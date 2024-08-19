@@ -9,4 +9,5 @@ Meu nome é Emanuella Cristina
 - ### Você pode entrar em contato comigo pelo email 📬
 - 
 - emanuella.assuncao@escola.pr.gov.br
-![](https://tenor.com/pt-BR/view/oyasumi-punpun-walking-gif-18102346)
+- 
+![](https://media.tenor.com/FeIs2cPIbHwAAAAM/oyasumi-punpun-walking.gif)
